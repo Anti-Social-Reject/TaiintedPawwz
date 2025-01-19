@@ -3,7 +3,7 @@
 
 Also, lately people have been stealing my skins! Do I have to put DNC/No inspo just for that to not happen? Like please don't copy my oc/cos, besides,i don't put the name of my cosplays in my user, and earlier someone copied my Kirari cosplay even though they didn't even know it was a cos, so respectfully, don't copy my skins.
 
-also, it isn't letting me edit my profile so the carrd you're seeing isn't my latest carrd but it's plausible. 
+also, it isn't letting me edit my profile so the carrd you're seeing isn't my latest carrd so here's the right one. https://caucasionessticityism.carrd.co/
 # -♦️♥️♠️♣️🎲
 
 ——————————————————————————————————————————————————
