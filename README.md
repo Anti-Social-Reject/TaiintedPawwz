@@ -24,7 +24,7 @@ Follow the scent of iron sinking
 Deeper into corpses rotting
 But they can't hear you talk, talk, talk
 About every little thing, every little thing
-Every
+Every 
 And the Hound is humming you
 A lie, a lullaby
 It clicks and it clatters in corners and borders
